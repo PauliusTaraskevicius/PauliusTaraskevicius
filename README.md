@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **taraskeviciusp@yahoo.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1y4vXFev88g2P2Ij2tYsXKbtb2l_kZzI1/view?usp=sharing](https://drive.google.com/file/d/1y4vXFev88g2P2Ij2tYsXKbtb2l_kZzI1/view?usp=sharing)
+- 📄 Know about my experiences https://drive.google.com/drive/folders/19acKr0EOwsCu4yXqsBvQoscCTiURlsF6?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
